@@ -22,7 +22,7 @@ Beside's developing stuff, I enjoy listening music 🎧, reading book 📚, and 
 
 - 🏆 Completed Btech (Graduation) from AKTU University, Gr.Noida, UP.
 
-- :telescope: I’m currently working on <b> Machine Learning skills.</b>
+- :telescope: I’m currently working on <b> Machine Learning and AWS skills.</b>
 - 💬 Ask me about anything, I am happy to help
 - 📫 How to reach me: Mayank.shift@gmail.com
 
