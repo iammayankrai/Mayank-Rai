@@ -4,7 +4,7 @@
 
 
 
-Hi, I'm Mayank Rai, an graduate student from AKTU 🚀 from India.  Currently, working as Sr Cost Engineer at JAPTECH ENGICORP. 
+Hi, I'm Mayank Rai, an graduate student from AKTU 🚀 from India.  Currently, working as Sr Cost Analyst at JAPTECH ENGICORP. 
 Having experience of 2 years in costing, with keen interest in handling and manipulating large data and drawing the best possible insights out of it.
 
 Beside's developing stuff, I enjoy listening music 🎧, reading book 📚, and traveling 🏝️🗻.
